@@ -8,3 +8,6 @@
 - 💬 i want to learn about python
 - 📫 How to reach me: ...
 
+## connect with me
+   [LinkedIN](https://www.linkedin.com/in/sagana-rp-b7996a377?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+ 
